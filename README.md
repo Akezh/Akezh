@@ -7,7 +7,6 @@
 - 👯 I'm looking for Summer 2021 internships
 - 🥅 2020 Goals: Contribute more to Open Source projects
 
-<br />
 
 ### Languages and Tools:
 

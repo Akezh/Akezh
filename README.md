@@ -1,4 +1,4 @@
-### Hi there, I'm Akezhan 👋
+### Hi there, I'm Akezhan 👋 I'm looking for Summer 2021 Internships
 
 ## Software Developer, and Student!
 
